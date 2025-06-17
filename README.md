@@ -1,3 +1,1 @@
 - 👋 Hi, I’m Cong Thanh
-- 💞️ I’m looking to collaborate on automative projects.
-- 📫 Please contact me via: vcthanh20@gmail.com
